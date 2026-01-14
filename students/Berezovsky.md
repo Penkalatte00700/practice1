@@ -1,0 +1,2 @@
+﻿Heorhii Berezovsky
+є ноутбук
